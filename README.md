@@ -109,5 +109,5 @@ As a Digital Marketer:
 
 ## Support
 
-For support, email info.kazwish@gmail.com or join our Slack channel.
+For support, email info.optimisticnurul@gmail.com or join our Slack channel.
 
